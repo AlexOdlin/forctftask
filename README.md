@@ -1,2 +1,43 @@
-# forctftask
-lol
+# For those who search flag.
+Here is instruction:
+   
+   	 	 
+   					 	
+   		 			
+   		    	
+   		  		
+   			  	 
+   		  			
+   	 					
+   		  		
+   			  	 
+   		 	  
+   	 					
+   			  		
+   		  		
+   			  		
+   		 	  
+   			    
+   			  		
+   		  	 	
+   			 	  
+   		   	
+   		 	   
+   			 			
+   				 		
+   	   	 	
+   	 	  		
+   	  	   
+
+  
+ 
+ 
+	 	
+	
+  
+ 
+
+
+  	
+ 
+
